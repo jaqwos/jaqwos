@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @rasshittt
-- 👀 I’m interested in making anything 
-- 🌱 I’m currently learning discord.py
-- 💞️ I’m looking to work remotely on any project from inside a prison 
-- 📫 How to reach me https://twitter.com/rasshittt or  anarko3301@gmail.com
+- 👋 fuck off
